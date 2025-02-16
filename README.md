@@ -41,7 +41,7 @@ Passionate about transforming raw data into actionable insights. I combine my te
 ---
 
 ### 📫 Reach Out  
-- 📧 **Email:** pedro99b0@gmail.com  
+- 📧 **Email:** pedro99b@gmail.com  
 - 📍 **Location:** Spain | Open to relocation
 
 ---
