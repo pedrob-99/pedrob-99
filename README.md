@@ -1,4 +1,4 @@
-## Hello! 👋 I'm Pedro Blois 
+## Hello! 👋 I'm Pedro
 
 ### 🔭 Petroleum Engineer | Aspiring Data Scientist
 
